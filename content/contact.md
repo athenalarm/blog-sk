@@ -36,4 +36,10 @@ Zostaňte informovaní o našich najnovších bezpečnostných inováciách, pr�
 
 ---
 
+### 🛡️ Globálne poznatky o bezpečnosti
+
+**Athenalarm je profesionálny výrobca, ktorý zdieľa odborné poznatky o produktoch a systémoch zabezpečovacej signalizácie.** V rámci nášho záväzku voči globálnej bezpečnostnej komunite poskytujeme lokalizované odborné znalosti v 71 jazykoch. Preskúmajte našu špecializovanú znalostnú bázu pre Európu, Afriku, Áziu, Ameriku a Oceániu [**tu**](https://athenalarm.com/burglar-alarm-manufacturer/athenalarm-global-blogs/).
+
+---
+
 > _Athenalarm — Profesionálny výrobca zabezpečovacích poplašných systémov a riešení pre **monitorovanie sieťových poplachov**._
